@@ -17,5 +17,5 @@ saige (preferably) / draco
 
 <a href="https://phighting.wiki/Shuriken">shuri</a>
 
-<a href=##>rentry (coming soon dont click!11!1!!)</a>
+<a href=##>rentry (coming soon dont click!11!11!!)</a>
 </div>
